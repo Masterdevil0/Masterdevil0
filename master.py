@@ -1,0 +1,14 @@
+HEY WHATSUP MF 
+JUST CHILL I AM NOT GONNA DISMISS YOU
+HOLD YOUR PHONE FOR 10 SEC.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+BOOM 💥 💥 💥 
+LOL ITS JUST NINE 🤣
